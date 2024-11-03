@@ -133,7 +133,6 @@ Pues ¡cuánta es su gracia y cuánta su hermosura! El trigo hará florecer a lo
 Isaías 4:2
 Conceptos de los Versículos
 Aquel día el Renuevo del SEÑOR será hermoso y lleno de gloria, y el fruto de la tierra {será} el orgullo y adorno de los sobrevivientes de Israel.
-
 Génesis 24:16
 Conceptos de los Versículos
 La joven era muy hermosa, virgen, ningún hombre la había conocido; bajó ella a la fuente, llenó su cántaro y subió.
@@ -169,3 +168,4 @@ Cuando le tocaba a cada joven venir al rey Asuero, al cumplirse sus doce meses, 
 Job 14:1
 Conceptos de los Versículos
 El hombre, nacido de mujer, corto de días y lleno de turbaciones.
+woaaa.nueva
